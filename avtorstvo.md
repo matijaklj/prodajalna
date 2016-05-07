@@ -1,0 +1,1 @@
+Študent z vpisno številko __63140105__ potrjujem, da sem __edini avtor__ oddane domače naloge.
